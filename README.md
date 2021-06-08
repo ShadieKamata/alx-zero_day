@@ -1,1 +1,1 @@
-The project is quite intersting
+The project is quite interesting
